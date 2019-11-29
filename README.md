@@ -1,2 +1,0 @@
-# Sopho-Landing-Page
- 
